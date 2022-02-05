@@ -1,1 +1,1 @@
-# LongCat
+# LongCat is loooooong 😭
